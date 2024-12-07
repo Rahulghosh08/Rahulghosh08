@@ -1,5 +1,4 @@
-![B.Tech CSE 1st year student]
-(https://pbs.twimg.com/profile_banners/1862133645919825920/1733596100/1500x500)
+![B.Tech CSE 1st year student](https://pbs.twimg.com/profile_banners/1862133645919825920/1733596100/1500x500)
 ### Hi there 👋, I'm Rahul
 #### B.Tech CSE 1st year student
 
